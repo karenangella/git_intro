@@ -1,2 +1,1 @@
 Karen Setiawan
-8
